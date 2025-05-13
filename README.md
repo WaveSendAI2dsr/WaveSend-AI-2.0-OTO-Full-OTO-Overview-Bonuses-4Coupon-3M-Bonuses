@@ -1,1 +1,1 @@
-# WaveSend-AI-2.0-OTO-Full-OTO-Overview-Bonuses-4Coupon-3M-Bonuses
+# WaveSend AI 2.0 OTO: Full OTO Overview + Bonuses & 4Coupon + $3M Bonuses
